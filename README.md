@@ -1,1 +1,1 @@
-# First semester
+# First semester projects
